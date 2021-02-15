@@ -1,0 +1,1 @@
+# Voz-Do-Tradutor-App
